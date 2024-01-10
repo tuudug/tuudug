@@ -1,6 +1,6 @@
 *did we reach the end?*
 
-[osu!](https://osu.ppy.sh/users/5145352)
+[osu!](https://osu.ppy.sh/users/5145352) | [Steam](https://steamcommunity.com/id/tuudug) | [last.fm](https://www.last.fm/user/tuudugc)
 
 <!--
 **tuudug/tuudug** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
