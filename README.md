@@ -1,4 +1,4 @@
-### Hi there 👋
+![https://imgur-archive.ppy.sh/UnNO2rV.png](https://imgur-archive.ppy.sh/UnNO2rV.png)![https://imgur-archive.ppy.sh/xFkbSLz.png](https://imgur-archive.ppy.sh/xFkbSLz.png)[![https://imgur-archive.ppy.sh/L4B5Whr.png](https://imgur-archive.ppy.sh/L4B5Whr.png)](https://youtube.com/c/tuudug)![https://imgur-archive.ppy.sh/UMG6K77.png](https://imgur-archive.ppy.sh/UMG6K77.png)[![https://imgur-archive.ppy.sh/qR2vyzg.png](https://imgur-archive.ppy.sh/qR2vyzg.png)](https://twitch.tv/tuudug)![https://imgur-archive.ppy.sh/yS4SX3u.png](https://imgur-archive.ppy.sh/yS4SX3u.png)[![https://imgur-archive.ppy.sh/3jTHZvN.png](https://imgur-archive.ppy.sh/3jTHZvN.png)](https://twitter.com/tuudugc?s=21&t=OnWKA8OPVgvJ2FOzP_aWJg)![https://imgur-archive.ppy.sh/qzAYYwZ.png](https://imgur-archive.ppy.sh/qzAYYwZ.png)![https://imgur-archive.ppy.sh/rulVoG9.png](https://imgur-archive.ppy.sh/rulVoG9.png)
 
 <!--
 **tuudug/tuudug** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
