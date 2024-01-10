@@ -1,5 +1,7 @@
 *did we reach the end?*
 
+🌠 *In the end, the forest will remember.*
+
 [**osu!**](https://osu.ppy.sh/users/5145352) | [**Steam**](https://steamcommunity.com/id/tuudug) | [**last.fm**](https://www.last.fm/user/tuudugc)
 
 <!--
