@@ -1,4 +1,6 @@
-guys i'm so cringe what do i do
+just your typical dev 🌻
+
+[**LinkedIn**](https://www.linkedin.com/in/tuguldur-chinzorig-1a960128a/)
 
 [**osu!**](https://osu.ppy.sh/users/5145352) | [**Steam**](https://steamcommunity.com/id/tuudug) | [**last.fm**](https://www.last.fm/user/tuudugc)
 
